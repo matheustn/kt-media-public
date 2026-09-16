@@ -1,0 +1,1 @@
+midia publica de anuncio
